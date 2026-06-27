@@ -1,4 +1,4 @@
 Hello Seeun!
 
-I love coffee!
+I love Junhyoung!
 
